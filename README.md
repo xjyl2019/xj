@@ -1,2 +1,3 @@
-# xj
-新记回家地址
+# https://xinji.app
+* https://2456.pro
+* http://2357.pro
